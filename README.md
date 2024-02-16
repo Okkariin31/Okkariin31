@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Okkariin31
+- 👀 I’m interested in -> coding in generall
+- 🌱 I’m currently learning -> making apps
+- 💞️ I’m looking to collaborate on -> don´t know yet
+- 📫 How to reach me -> from here
+- 😄 Pronouns: -> Man
